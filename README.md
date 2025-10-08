@@ -6,4 +6,4 @@
 
 💻 In my spare time, I love working on side projects and collaborating with others. If you have a cool idea or project you'd like to work on together, let's chat!
 
-📫 You can reach me on Twitter (@Mekonius) or by sending me a message here on GitHub. Let's connect and build something awesome! 🚀
+📫 You can reach me on X (@Mekonius) or by sending me a message here on GitHub. Let's connect and build something awesome! 🚀
